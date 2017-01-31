@@ -54,3 +54,6 @@ Please pull request or comment to add articles that are not listed below
 <div>
   <em>January 30, 2017</em> - <strong>Courier Journal</strong>
 </div>
+
+## [Rally for American Values](https://www.facebook.com/pg/theiushorizon/photos/?tab=album&album_id=1274371489265575)
+  <em>January 30, 2017</em> - <strong>The Horizon – IUS Facebook page</strong>
